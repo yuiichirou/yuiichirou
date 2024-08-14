@@ -11,5 +11,4 @@ tt: @yuichirosmt
 
 I love Okuyasu Nijimura and Yuichiro Tokito, theyre the best imo!!
 
-
 ![](https://tenor.com/pt-BR/view/muichiro-gif-16923511670193404571)
